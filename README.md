@@ -15,4 +15,4 @@ Desarrollador Web en formación.
 - Inteligencia Artificial
 
 ## Contacto
-LinkedIn: linkedin.com/in/roman-trigueros
+LinkedIn:www.linkedin.com/in/román-trigueros
